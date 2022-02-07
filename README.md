@@ -12,17 +12,17 @@ Desde Facephi lanzamos el primer FacePhi Challenge, un reto en el que se pondrá
 * Durante los 10 días de trabajo del reto los participantes tendrán a su disposición un sistema de **consulta de expertos** de FacePhi a través del correo facephichallenge2022@facephi.com
 
 #### **¿Habrá premio?**
-¡Por supuesto! El equipo ganador y los semi finalistas serán beneficiarios de un cheque regalo de Amazon valorado en 200€ y 100€, respectivamente*. <br />
+¡Por supuesto! El equipo ganador y los finalistas serán beneficiarios de un cheque regalo de Amazon valorado en 300€, 150€ y 50€[^1], respectivamente. Y lo más importante, los equipos más creativos y con mejores propuestas tendrán la posibilidad de desarrollar una carrera profesional **¡y formar parte del FacePhi Team!** <br />
 El día 25 de febrero se anunciará al equipo ganador, siendo la entrega de premios el 28 de febrero en el acto de clausura del Mes Cultural en la Universidad de Alicante. 
 
 #### **¿Cómo me inscribo?**
-Simplemente tendrás que rellenar el siguiente [formulario](https://forms.office.com/Pages/ResponsePage.aspx?id=Um55I28unkSQQfIb_HtFdOi4dmfJ1DdJqQ-homjHaIRUM1Y2MjRHRFlVMUsxUEwxNUMxQUYwS1pSWC4u "Formulario inscripción FacePhi Challenge") con los datos de los miembros del equipo, recuerda que podréis inscribiros aunque el reto ya haya comenzado**.
+Simplemente tendrás que rellenar el siguiente [formulario](https://forms.office.com/Pages/ResponsePage.aspx?id=Um55I28unkSQQfIb_HtFdOi4dmfJ1DdJqQ-homjHaIRUM1Y2MjRHRFlVMUsxUEwxNUMxQUYwS1pSWC4u "Formulario inscripción FacePhi Challenge") con los datos de los miembros del equipo, recuerda que podréis inscribiros aunque el reto ya haya comenzado[^2].
 <br />
 Para cualquier duda relacionada con el Challenge, no dudes en ponerte en contacto con nosotros a través del correo facephichallenge2022@facephi.com <br />
 
 ¡Te esperamos!  
 <br />
 
-*El cheque de Amazon será a repartir entre los integrantes del equipo. Además, para los finalistas existe la posibilidad de desarrollar su carrera profesional en FacePhi. 
+[^1]: El cheque de Amazon será a repartir entre los integrantes del equipo.
 
-**No podrán participar trabajadores de FacePhi. 
+[^2]: No podrán participar trabajadores de FacePhi. 
